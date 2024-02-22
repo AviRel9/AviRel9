@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AviRel9
 - 👀 I’m interested in Crypto
-- 🌱 I’m currently learning coding and trading crypto
+- 🌱 I’m currently learning trading crypto
 - 💞️ I’m looking to collaborate on all aspects of crypto opportunities
 - 📫 How to reach me arvind.r547@gmail.com
 - 😄 Pronouns: ...
